@@ -1,0 +1,1 @@
+Prazer meu nome é Thiago, tenho 15 anos faço 16 agora em outubro de 2024, e tenho diversos planos para a minha vida, e um deles é fazer faculdades de letras e me tornar fluente, ter meu primeiro carro entre 19 e 20.
